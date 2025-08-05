@@ -1,7 +1,5 @@
-AC:@ksn_toast 𓏲˖🎴
-  <img width="470" height="400" src="https://pbs.twimg.com/media/GR6ar3pXYAAbXqe?format=png&name=medium">
 
-  ❝ Sakura-chan, you really like Sasuke huh? ..I know how much pain you’re in because of Sasuke. I can understand. ❞
+  <img width="470" height="400" src="https://safebooru.org//samples/527/sample_a9653fa5f20b33607321a2c2f101a7c5278cd16f.jpg?5798468">
 
 <!--
 **narusasusaku/narusasusaku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
