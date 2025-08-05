@@ -1,5 +1,5 @@
 
-  <img width="470" height="400" src="https://safebooru.org//samples/527/sample_a9653fa5f20b33607321a2c2f101a7c5278cd16f.jpg?5798468">
+  <img width="470" height="400" src="https://64.media.tumblr.com/f5ab99c3536f2495774a29b0b172e623/3d82602e7762ff38-88/s1280x1920/e5febe02d935eaf1bdee2fa41d90fca33a77aad5.pnj">
 
 <!--
 **narusasusaku/narusasusaku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
