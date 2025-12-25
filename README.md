@@ -8,4 +8,4 @@
 <p align="center">
  <img width="200" height="100" src="https://64.media.tumblr.com/fe3a679778c123fc8439b7e80f7051ee/9b4531cfd25fda07-ff/s250x400/d3b48fd885654455d034ee1602d2c81a7fb0397e.gif"> 
 
- i diont think the show is good and i hate the creator i just have a big fat attachment to that stupid tv guy so iwc as i dont care much about the plot or the other characther all that much . 
+ i diont think the show is good and i hate the creator i just have a big fat attachment to that stupid tv guy so iwc as i dont care much about the plot or the other characther all that much . talk to me about my tv mamma and his stupid radio toy plz
