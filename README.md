@@ -2,8 +2,8 @@
   <a href="https://residentvillage.atabook.org">sign ata !</a> 
 
 <p align="center">
- <img width="500" height="400" src="https://pbs.twimg.com/media/G8xlT7Ya4AAlMdd?format=jpg&name=medium"> 
+ <img width="400" height="300" src="https://images-ext-1.discordapp.net/external/ljim6oJsFDYVNSAHeBM_leoQh_s3od_NQLycuxCfp_w/https/files.catbox.moe/fp18y5.png?format=webp&quality=lossless&width=494&height=600">  <img width="400" height="300" src="https://files.catbox.moe/7e8kgz.png"> 
 
  
 <p align="center">
- <img width="500" height="400" src="https://64.media.tumblr.com/6c77ed45d0b102e1d077cda59062ff0b/384b5e0f59640fb4-c0/s1280x1920/a4a9be0d90adb0c9d2ceb01a6e8e5fc3649b11e2.pnj"> 
+ <img width="200" height="100" src="https://64.media.tumblr.com/fe3a679778c123fc8439b7e80f7051ee/9b4531cfd25fda07-ff/s250x400/d3b48fd885654455d034ee1602d2c81a7fb0397e.gif"> 
