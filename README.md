@@ -8,4 +8,4 @@
 <p align="center">
  <img width="200" height="100" src="https://64.media.tumblr.com/fe3a679778c123fc8439b7e80f7051ee/9b4531cfd25fda07-ff/s250x400/d3b48fd885654455d034ee1602d2c81a7fb0397e.gif"> 
 
- i dont think the show is well written and i dislike the creator i just have a big fat attachment to that stupid tv guy so iwc as i dont care much about the plot or the other characthers all that much . talk to me about my tv man and his stupid radioman plz
+ i dont think the show is well written and i dislike the creator i just have a big fat attachment to that stupid tv guy so iwc if ur a die hard fan . talk to me about my tv man and his stupid radioman plz
